@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate and share ideas
 - 📫 How to reach me(otolugu@gmail.com)
   
-- ⚡ Fun fact: im a recovered alcoholic and smoker.been sober for 5 years,interested in self development,spirituality and generaly finding growth as a human.
+- ⚡ Fun fact: im natural born unicorn,i try to master every aspect of the game i play,very hardworking and goal driven,recently im interested in self development,spirituality and generaly finding growth as a human.
 
 <!---
 Princy-000/Princy-000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
