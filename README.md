@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate and share ideas
 - 📫 How to reach me(otolugu@gmail.com)
   
-- ⚡ Fun fact: im natural born unicorn,i try to master every aspect of the game i play,very hardworking and goal driven,recently im interested in self development,spirituality and generaly finding growth as a human.
+- ⚡ Fun fact: im natural born unicorn,i try to master every aspect of the game i play,very hardworking and goal driven,recently im interested in self development,spirituality and generaly finding growth as a human.im a responsible person i do not make excuses,i fix what i break,i pay most attention and sincerely listen to what im doing wrong.
 
 <!---
 Princy-000/Princy-000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
